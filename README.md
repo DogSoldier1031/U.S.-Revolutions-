@@ -6,6 +6,6 @@ https://www.washingtonpost.com/history/2019/08/25/george-washington-owned-slaves
 
 https://www.mountvernon.org/george-washington/health/washingtons-teeth/george-washington-and-slave-teeth/
 
-https://www.mountvernon.org/george-washington/health/washingtons-teeth/george-washington-and-slave-teeth/
+https://en.m.wikipedia.org/wiki/Town_Destroyer
 
 https://www.texasmonthly.com/being-texan/how-leaders-texas-revolution-fought-preserve-slavery/
